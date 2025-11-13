@@ -11,5 +11,9 @@ CONTENT STRATEGY link on canva (https://www.canva.com/design/DAGz_Trc-m0/5eB6HZw
 
 MEDIA PLAN link on canva (https://www.canva.com/design/DAG3iO00zdM/ez-0uzKoopB8wm0cD8nHdA/edit)
 
+OCTOBER CALANDER link on canva (https://www.canva.com/design/DAGyO5CQSNg/6YIfd7AQ1hFzp9nCIT7EsA/edit) 
+
+NOVAMBER CALANDER link on canva ( https://www.canva.com/design/DAGzOCqF01Y/0IvDNM2fEtYG9-4_dX4FKA/edit )
+
 
 
